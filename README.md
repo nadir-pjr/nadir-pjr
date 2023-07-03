@@ -1,4 +1,4 @@
-A passionate Front-end web Developer
+Highly creative and skilled web designer with expertise in HTML, CSS, and JavaScript, as well as a professional graphic designer with a keen eye for aesthetics and attention to detail. Experienced in designing and developing responsive websites, creating engaging graphic design solutions, and collaborating with clients to meet their specific needs.
 
 
 ## 🌐 Socials:
